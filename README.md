@@ -1,4 +1,4 @@
-# Unlock High-Paying Job Offers with MLOps ProjectMastery
+# Unlock High-Paying Job Offers with MLOps Project Mastery
 
 Welcome to a transformative journey where we don't just learn Machine Learning Operations (MLOps) but master the art of securing high-paying job offers, both nationally and internationally, all while working remotely from the comfort of your home!
 
